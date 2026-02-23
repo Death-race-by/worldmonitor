@@ -1,1 +1,1 @@
-Delete all third party accesa and take over from developer on iphone
+Delete all third party access and take over from developer on iphone
